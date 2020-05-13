@@ -1,16 +1,16 @@
-I'm going tooo... Where the sun burns And the.... 
+I'm going tooo... Where the sun burns And the
 
 Heeeaat stays in command
 
-Come lay by my side... Right heeere
+Come and lay by my side... Right heeere
 
 
 
-To where the.... river turns to dust And...
+To where the.... river turns to dust And
 
 God is never rushed
 
-Come lay by my side Right here
+Come and lay by my side Right here
 
 
 
@@ -18,19 +18,19 @@ Red, I love you and the world
 
 
 
-It seem to make sense When Brother Santo Said O 
+It seemed to make sense When Brother Santo? Said O 
 
 One more runbeenough
 
-Gonna be enough
+Gonna be enough!
 
 
 
-Money for everything... Silver toed boots And...
+Money for everything... Silver toed boots And
 
-Karosene aha
+Karosene aua
 
-Come lay by my side Right here
+Come and lay by my side Right here
 
 
 
@@ -38,11 +38,11 @@ Red, I love you and the world
 
 
 
-Well the buzzing stiiink and the choking
+Well the buzzing, the stiiink and the choking
 
 I can't stay no more
 
-Come lay by my side Right here
+Come and lay by my side Right here
 
 
 
@@ -52,7 +52,7 @@ Red, I need you and the world
 
 When I see you behind the glass (c major g  a minor f)
 
-I Forget that I'm iiiiin the cage
+I Forget that I'm innnnn the cage
 
 They bring me to Sunday mass
 
@@ -64,11 +64,11 @@ Red, I love you and the world
 
 
 
-Sevenmonths gone and sevenyears To go Red
+Sevenmonths gone and sevenyears, To go Red
 
 I can't stand no more (pick 4th string with c major instead of 5th string)
 
-Come lay by my side Right here
+Come and lay by my side Right here
 
 
 
