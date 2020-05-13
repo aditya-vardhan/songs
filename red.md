@@ -26,19 +26,19 @@ Red, I love you and the world
 
 
 
-It's seem to make sense
+It seem to make sense When Brother Santo Said O 
 
-When Brother Santo 
-
-Said One more runbeenough
+One more runbeenough
 
 Gonna be enough
 
 
 
-Money for everything
+Money for everything...
 
-Silver toed boots and kerosene aha
+Silver toed boots And...
+
+Karosene aha
 
 Come lay by my side
 
@@ -50,7 +50,7 @@ Red, I love you and the world
 
 
 
-(Well) the buzzing stiiink and the choking
+Well the buzzing stiiink and the choking
 
 I can't stay no more
 
@@ -70,7 +70,7 @@ I Forget that I'm iiiiin the cage
 
 They bring me to Sunday mass
 
-But it nevero wiped the ra......ge
+But it never o wiped the ra......ge
 
 
 
@@ -78,9 +78,7 @@ Red, I love you and the world
 
 
 
-Sevenmonths gone and sevenyears
-
-To go Red
+Sevenmonths gone and sevenyears To go Red
 
 I can't stand no more (pick 4th string with c major instead of 5th string)
 
