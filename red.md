@@ -66,7 +66,7 @@ Red, I need you and the world
 
 When I see you behind the glass (c major g  a minor f)
 
-Forget that I'm in the cage
+I Forget that I'm in the cage
 
 They bring me to Sunday mass
 
