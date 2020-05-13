@@ -38,7 +38,7 @@ Red, I love you and the world
 
 
 
-Well the buzzing, the stiiink and the choking
+Well the buzzing stiiink and the choking
 
 I can't stay no more
 
