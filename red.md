@@ -64,7 +64,7 @@ Red, I need you and the world
 
 
 
-When I see you behind the glass
+When I see you behind the glass (c major g  a minor f)
 
 Forget that I'm in the cage
 
@@ -82,7 +82,7 @@ Seven months gone and seven years
 
 To go Red
 
-I can't stand no more
+I can't stand no more (pick 4th string with c major instead of 5th string)
 
 Come lay by my side
 
@@ -93,3 +93,10 @@ Right here
 Red, I love you and the world
 
 Red, I need you and the world
+
+###chords
+c major f 
+
+c major f g
+
+c major g  a minor f    c major g  a minor f 
