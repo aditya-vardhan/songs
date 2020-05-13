@@ -1,14 +1,8 @@
-I'm going tooo... 
-
-Where the sun burns 
-
-And the.... 
+I'm going tooo... Where the sun burns And the.... 
 
 Heeeaat stays in command
 
-Come lay by my side
-
-Right heeere
+Come lay by my side... Right heeere
 
 
 
@@ -16,9 +10,7 @@ To where the.... river turns to dust And...
 
 God is never rushed
 
-Come lay by my side
-
-Right here
+Come lay by my side Right here
 
 
 
@@ -34,15 +26,11 @@ Gonna be enough
 
 
 
-Money for everything...
-
-Silver toed boots And...
+Money for everything... Silver toed boots And...
 
 Karosene aha
 
-Come lay by my side
-
-Right here
+Come lay by my side Right here
 
 
 
@@ -54,9 +42,7 @@ Well the buzzing stiiink and the choking
 
 I can't stay no more
 
-Come lay by my side
-
-Right here
+Come lay by my side Right here
 
 
 
@@ -82,9 +68,7 @@ Sevenmonths gone and sevenyears To go Red
 
 I can't stand no more (pick 4th string with c major instead of 5th string)
 
-Come lay by my side
-
-Right here
+Come lay by my side Right here
 
 
 
