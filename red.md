@@ -1,6 +1,10 @@
-I'm going to where the sun burns
+I'm going to 
 
-And the heat stays in command
+Where the sun burns 
+
+And the 
+
+Heat stays in command
 
 Come lay by my side
 
@@ -8,9 +12,9 @@ Right here
 
 
 
-To where the river turns to dust
+To where the river turns to dust And
 
-And god is never rushed
+God is never rushed
 
 Come lay by my side
 
@@ -22,19 +26,19 @@ Red, I love you and the world
 
 
 
-It's seem to make sense
+It's seem to make sense When
 
-When brother Santo said
+Brother Santo 
 
-One more run be enough
+Said One more run be enough
 
-Going to be enough
+Gonna be enough
 
 
 
 Money for everything
 
-Silver toed boots and kerosene
+Silver toed boots and kerosene aha
 
 Come lay by my side
 
@@ -46,7 +50,7 @@ Red, I love you and the world
 
 
 
-The buzzing stink and the choking
+Well the buzzing stink and the choking
 
 I can't stay no more
 
@@ -62,7 +66,7 @@ Red, I need you and the world
 
 When I see you behind the glass
 
-I forget that I'm in the cage
+Forget that I'm in the cage
 
 They bring me to Sunday mass
 
@@ -74,9 +78,11 @@ Red, I love you and the world
 
 
 
-Seven months gone and seven years to go
+Seven months gone and seven years
 
-Red I can't stand no more
+To go Red
+
+I can't stand no more
 
 Come lay by my side
 
