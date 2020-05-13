@@ -18,9 +18,9 @@ Red, I love you and the world
 
 
 
-It seemed to make sense When Brother Santo? Said O 
+It seemed to make sense When Brother Santo? 
 
-One more runbeenough
+Said O one more runbeenough
 
 Gonna be enough!
 
@@ -28,7 +28,7 @@ Gonna be enough!
 
 Money for everything... Silver toed boots And
 
-Karosene aua
+Karosene oua
 
 Come and lay by my side Right here
 
