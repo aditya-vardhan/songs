@@ -1,18 +1,18 @@
-I'm going to 
+I'm going tooo... 
 
 Where the sun burns 
 
-And the 
+And the.... 
 
-Heat stays in command
+Heeeaat stays in command
 
 Come lay by my side
 
-Right here
+Right heeere
 
 
 
-To where the river turns to dust And
+To where the.... river turns to dust And...
 
 God is never rushed
 
@@ -26,11 +26,11 @@ Red, I love you and the world
 
 
 
-It's seem to make sense When
+It's seem to make sense
 
-Brother Santo 
+When Brother Santo 
 
-Said One more run be enough
+Said One more runbeenough
 
 Gonna be enough
 
@@ -50,7 +50,7 @@ Red, I love you and the world
 
 
 
-Well the buzzing stink and the choking
+(Well) the buzzing stink and the choking
 
 I can't stay no more
 
@@ -66,7 +66,7 @@ Red, I need you and the world
 
 When I see you behind the glass (c major g  a minor f)
 
-I Forget that I'm in the cage
+I Forget that I'm iiiiin the cage
 
 They bring me to Sunday mass
 
