@@ -50,7 +50,7 @@ Red, I love you and the world
 
 
 
-(Well) the buzzing stink and the choking
+(Well) the buzzing stiiink and the choking
 
 I can't stay no more
 
@@ -70,7 +70,7 @@ I Forget that I'm iiiiin the cage
 
 They bring me to Sunday mass
 
-But it never wiped the rage
+But it nevero wiped the ra......ge
 
 
 
@@ -78,7 +78,7 @@ Red, I love you and the world
 
 
 
-Seven months gone and seven years
+Sevenmonths gone and sevenyears
 
 To go Red
 
