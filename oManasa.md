@@ -1,63 +1,72 @@
-O Manasa chéruvaga, raa ila
+o manasa cheruvaga raa ela
+Nanu neeto laagtu.. dorakanane parugavuta vela
+o manasa cheruvaga raa ela
 
-Nanu neelo aaputhu,
+avunantu okaru kundi
+vadantu aaputundi
+yedena na payena vuna istame kada
 
-VéLipommani thariméstha'véla
+nuvanta dooramunte
+na swasa gingu kundi
+a vedana yento nuvu polacha leni da
 
-O Manasa chéruvaga, raa ila
+o manasa cheruvaga raa ela
+Nanu neeto laagtu.. dorakanane parugavuta vela
+o manasa cheruvaga raa ela
 
-O kaalaala choopu soki, véroka roopu lo ki
+avunantu okaru kundi
+vadantu aaputundi (a…)
+yedena na payena vuna istame kada
 
-Naa loni préma rangu, maaripodhu ga
+Charanam:
 
-Nuvv'énto thélisinaaka, inn'dhaaka vachchinaaka
+kadana nee maate kati la taake
+Naa kala lato aadake
+Bharinchi vyeram naa paye yenduke
+oori teeyake oorike
 
-Nee janta jaada thappa daari lédhu ga
+oka nimisham nenu nuvye chudava (a…)
+karu ninche kanti ga
+na prema ni avunanava nuve
+punamive venela ga maarave (music)
 
-O Manasa chéruvaga, raa ila
+ye naati di e bhandam
+yenati moolam
+yee naati ki telade
+ona haye prayanam saaginche ee varam
+nuvu aapina aagade
 
-Nanu neelo aaputhu, véLipommani thariméstha'véla
+nijam okate yenatiki maarade
+vedi vere raasunado manaki epudu e parichayame kaade
 
-O Manasa chéruvaga, raa ila
+kadana nee maate kati la taake
+Naa kala lato aadake
+Bharinchi vyeram naa paye yenduke
+oori teeyake oorike
 
-Oochinchané léné, undané léné
+oka nimisham nenu nuvye chudava (a…)
+karu ninche kanti ga
+na prema ni avunanava nuve
+punamive venela ga maarave (music)
 
-Nuvvu lénidhé, nénéla?
+ye naati di e bhandam
+yenati moolam
+yee naati ki telade
+ona haye prayanam saaginche ee varam
+nuvu aapina aagade
 
-Neethoné, neeloné kalipésa nanné
+ 
 
-Po pommani, anak'ala
+nijam okate yenatiki maarade
+vedi vere raasunado manaki epudu e parichayame kaade
+Thalapulaku valapulu theeradhe
 
-Énaado nuvvu kooda, nénayyaavuga
+avunantu okaru kundi
+vadantu aaputundi
+yedena na payena vuna istame kada
 
-Ninnu nuvvé, kaadhani, velivésé veelantu undha
+nuvanta dooramunte
+na swasa gingu kundi
+a vedana yento nuvu polacha leni da
 
-O Manasa, chéruvaga raa ila
-
-Vaddh'annaan'ani, vaddhak'ochchaanu
-
-Ee jeevitham needhani
-
-Chéraanu naa theeram
-
-Moosésaa dhwaaram
-
-Naa maatané vinanani
-
-Oka jananam okaténa premaku
-
-Thudhi varaku nee kalé
-
-Maranamu dhari raadhanta thanaku
-
-O Manasa chéruvaga, raa ila
-
-O kaalaala choopu soki, véroka roopu lo ki
-
-Naa loni préma rangu, maaripodhu ga
-
-Nuvv'énto thélisinaaka, inn'dhaaka vachchinaaka
-
-Nee janta jaada thappa daari lédhu ga
-
-O Manasa chéruvaga, raa ila
+o manasa cheruvaga raa ela
