@@ -1,75 +1,49 @@
-## Pallavi:
+
 ```
-o manasa cheruvaga raa ela
-Nanu neeto laagtu.. dorakanane parugavuta vela
-o manasa cheruvaga raa ela
+O.. Manasa cheruvaga raa ila
+Nanu neetho laaguthu
+Dorakanane parugavuthavela
+O.. Manasa cheruvaga raa ila
+Avunantu koruthundhi
+Vadhantu aaputhondhi
+Ydhaina naa paina vunna ishtame kadha
+Nuvvantha dooramunte
+Naa swasha ginjukundhi
+Aavedhanento nuvvu polchalenidha
 
-avunantu okaru kundi
-vadantu aaputundi
-yedena na payena vuna istame kada
+O.. Manasa cheruvaga raa ila
+Nanu neetho laaguthu
+Dorakanane parugavuthavela
+O.. Manasa cheruvaga raa ila
+Avunantu koruthundhi
+Vadhantu aaputhondhi
+Ydhaina naa paina vunna ishtame kadha
 
-nuvanta dooramunte
-na swasa gingu kundi
-a vedana yento nuvu polacha leni da
+Kaadanna nee maate katti lekkake
+Naa kalalatho aadake
+Varinchi vairam naa pai enduke
+Vuri teeyake oorike
+Oka nimisham nenu nuvvai choodave
+Karuninche kaanthiga
+Naa premanu avunanava nuvve
+Punnamivai vennelaga paadave
 
-o manasa cheruvaga raa ela
-Nanu neeto laagtu.. dorakanane parugavuta vela
-o manasa cheruvaga raa ela
+Yenatidi ee bandham
+Yennati moolam
+Yenatiki teladhe
+Ooha ee prayanam
+Saginche varam
+Nuvvaapina aagadhe
+Nijamokate yennatiki daagadhe
+Vidhi vere raasunnadho
+Manakipudi parichayame kadhe
+Thalapulaku valapurulu teeradhe
 
-avunantu okaru kundi
-vadantu aaputundi (a…)
-yedena na payena vuna istame kada
-```
-## Charanam:
-```
-kadana nee maate kati la taake
-Naa kala lato aadake
-Bharinchi vyeram naa paye yenduke
-oori teeyake oorike
-
-oka nimisham nenu nuvye chudava (a…)
-karu ninche kanti ga
-na prema ni avunanava nuve
-punamive venela ga maarave (music)
-
-ye naati di e bhandam
-yenati moolam
-yee naati ki telade
-ona haye prayanam saaginche ee varam
-nuvu aapina aagade
-
-nijam okate yenatiki maarade
-vedi vere raasunado manaki epudu e parichayame kaade
-
-kadana nee maate kati la taake
-Naa kala lato aadake
-Bharinchi vyeram naa paye yenduke
-oori teeyake oorike
-
-oka nimisham nenu nuvye chudava (a…)
-karu ninche kanti ga
-na prema ni avunanava nuve
-punamive venela ga maarave (music)
-
-ye naati di e bhandam
-yenati moolam
-yee naati ki telade
-ona haye prayanam saaginche ee varam
-nuvu aapina aagade
-
- 
-
-nijam okate yenatiki maarade
-vedi vere raasunado manaki epudu e parichayame kaade
-Thalapulaku valapulu theeradhe
-
-avunantu okaru kundi
-vadantu aaputundi
-yedena na payena vuna istame kada
-
-nuvanta dooramunte
-na swasa gingu kundi
-a vedana yento nuvu polacha leni da
-
-o manasa cheruvaga raa ela
+Avunantu koruthundhi
+Vadhantu aaputhondhi
+Ydhaina naa paina vunna ishtame kadha
+Nuvvantha dooramunte
+Naa swasha ginjukundhi
+Aavedhanento nuvvu polchalenidha
+O.. Manasa cheruvaga raa ila
 ```
