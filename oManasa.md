@@ -1,3 +1,4 @@
+```
 o manasa cheruvaga raa ela
 
 Nanu neeto laagtu.. dorakanane parugavuta vela
@@ -122,3 +123,5 @@ a vedana yento nuvu polacha leni da
 
 
 o manasa cheruvaga raa ela
+
+```
