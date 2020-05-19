@@ -35,4 +35,5 @@ d g d a  a-lift-mid-finger d d-major -7 g d a d
 ```
 down down up down up down down
 up down up down down
+every chord starts with down down
 ```
