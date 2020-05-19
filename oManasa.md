@@ -6,7 +6,7 @@ Dorakanane parugavuthavela
 O.. Manasa cheruvaga raa ila
 Avunantu koruthundhi
 Vadhantu aaputhondhi
-Ydhaina naa paina vunna ishtame kadha
+Yedhaina naa paina vunna ishtame kadha
 Nuvvantha dooramunte
 Naa swasha ginjukundhi
 Aavedhanento nuvvu polchalenidha
@@ -17,22 +17,22 @@ Dorakanane parugavuthavela
 O.. Manasa cheruvaga raa ila
 Avunantu koruthundhi
 Vadhantu aaputhondhi
-Ydhaina naa paina vunna ishtame kadha
+Yedhaina naa paina vunna ishtame kadha
 
-Kaadanna nee maate katti lekkake
+Kaadanna nee maate katti lekkaake
 Naa kalalatho aadake
-Varinchi vairam naa pai enduke
+Varinche ee vairam naa pai enduke
 Vuri teeyake oorike
 Oka nimisham nenu nuvvai choodave
 Karuninche kaanthiga
 Naa premanu avunanava nuvve
 Punnamivai vennelaga paadave
 
-Yenatidi ee bandham
+Yenatidiee bandham
 Yennati moolam
 Yenatiki teladhe
 Ooha ee prayanam
-Saginche varam
+Saginche ee varam
 Nuvvaapina aagadhe
 Nijamokate yennatiki daagadhe
 Vidhi vere raasunnadho
@@ -41,7 +41,7 @@ Thalapulaku valapurulu teeradhe
 
 Avunantu koruthundhi
 Vadhantu aaputhondhi
-Ydhaina naa paina vunna ishtame kadha
+Yedhaina naa paina vunna ishtame kadha
 Nuvvantha dooramunte
 Naa swasha ginjukundhi
 Aavedhanento nuvvu polchalenidha
